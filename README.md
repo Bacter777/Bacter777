@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bacter777
-- 👀 I’m interested in You
+- 👀 Mag Ahuk nata! 👀
 
 <!---
 Bacter777/Bacter777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
